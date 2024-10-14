@@ -15,7 +15,7 @@ I'm a passionate Data Analyst with a strong background in statistics, data analy
 - To land a role where I can make a significant difference using data.
 
 ### 📫 How to Reach Me:
-- **LinkedIn:** [Pallavi Patil](https://www.linkedin.com/in/pallavi-patil/)
+- (https://www.linkedin.com/in/pallavi-patil9)
 - **GitHub:** [Pallavi-Patil-09](https://github.com/Pallavi-Patil-09)
 
 ### 🌐 Let's connect and explore the world of data together!
